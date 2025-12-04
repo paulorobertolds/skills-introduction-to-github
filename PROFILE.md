@@ -1,1 +1,1 @@
-## Welcome to my skills profile!
+## Welcome to my Github profile!
